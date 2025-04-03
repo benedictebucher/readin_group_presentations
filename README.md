@@ -26,7 +26,7 @@ If your presentation describes a precise scientific article, you can send us the
 * Célestin Huet
 
 ### 05/06/2025
-* ?
+* Bénédicte Bucher 
 * 
 ### 19/06/2025
 * ?
